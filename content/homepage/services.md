@@ -4,7 +4,7 @@ weight: 2
 header_menu: true
 ---
 
-Engedje meg, hogy röviden összefoglaljuk az álltalunk nyújtott szolgáltatásokat.
+Engedje meg, hogy röviden összefoglaljuk az általunk nyújtott szolgáltatásokat.
 
 ---
 

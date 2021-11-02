@@ -12,7 +12,7 @@ Well, let me tell ya!
 
 ---
 
-## Nutrition Coaching
+## Kertépítész, Kertész, Kerttervező
 
 This is not an easy task. You will likely have to pay money for this. You know what - let us look at a nice picture first.
 
@@ -22,7 +22,7 @@ Wow. That was nice, right? Well, call me and let us talk.
 
 ---
 
-## Chef Consulting
+## Kertépítész, Kertész, Kerttervező
 
 Did you see the picture above? I can show you how to go from
 

@@ -22,13 +22,13 @@ Lépjen velünk kapcsolatba, ha felkeltettük az érdeklősését!
 
 ## Mediterrán tipusú kertek
 
-Mindenki szereti a nyár melegségét, színeit és a mediterrán vidékek különös, laza hangulatát. Ehhez igazodva, a kerttulajdonosok egyre többször mediterrán kert kivitelezésével bíznak meg minket.
+Mindenki szereti a nyár melegségét, színeit és a mediterrán vidékek különös, laza hangulatát. Ehhez igazodva, a kerttulajdonosok egyre többször mediterrán kert kivitelezésével bíznak meg bennünket.
 
 A mediterrán kertépítészeti irányzat népszerűsége onnan eredeztethető, hogy évről, évre mind több honfitársunk jár a mediterrán országokba nyaralni, márpedig akit egyszer megérintett a kellemes mediterrán hangulat és életérzés, bizonyosan szeretné azt a későbbiekben is mind többször megtapasztalni, és lehetőleg a mindennapok részévé tenni. Ennek legpraktikusabb módja lehet, ha otthonunk és kertünk tervezésekor is a mediterrán stílusjegyeket követjük.
 
 ![Let us get started on a clean slate](images/mediterran.jpg)
 
-A mediterrán hangulatú kert kialakítása során a növények, a kerti burkolatok, kerti bútorok és más elemek (például kutak, szobrok) helyes kiválasztása egyaránt nélkülözhetetlen.
+A mediterrán hangulatú kert kialakítása során a növények, a burkolatok, kerti bútorok és más elemek (például kutak, szobrok) helyes kiválasztása egyaránt nélkülözhetetlen.
 
 ![Let us get started on a clean slate](images/mediterran2.jpg)
 
@@ -38,11 +38,11 @@ Bármennyire is szeretnénk kertünkbe ugyanazt a hangulatot és látványt var�
 
 ## Modern kertek
 
-Ha a modern kertstílus áll Önhöz és környezetéhez legközelebb, de még nem tudja, hogy ez miként lenne megvalósítható a gyakorlatban, hívjon minket!
+Ha a modern kertstílus áll Önhöz a legközelebb, de még nem tudja, hogy ez miként lehetne megvalósítani a gyakorlatban, hívjon minket!
 
 ![Let us get started on a clean slate](images/modern.jpg)
 
-A modern, minimalista kertstílus kialakításának alapja a rendkívül kifinomult anyaghasználat és a növények gondos megválasztása. Ám legalább ilyen fontos tudatosítanunk, hogy modern kert csakis modern stílusú épülethez illik igazán.
+A modern, minimalista kertstílus kialakításának alapja a rendkívül kifinomult anyaghasználat, és a növények gondos megválasztása. Ám legalább ilyen fontos tudatosítanunk, hogy modern kert csakis modern stílusú épülethez illik igazán.
 
 
 ---

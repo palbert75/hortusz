@@ -16,6 +16,9 @@ Engedje meg, hogy röviden összefoglaljuk az általunk nyújtott szolgáltatás
  
 ![Nice picture to make you pay me ;-)](images/permaculture.jpg)
 
+![Nice picture to make you pay me ;-)](images/permaculture1.jpg)
+
+![Nice picture to make you pay me ;-)](images/permaculture2.jpg)
 Lépjen velünk kapcsolatba, ha felkeltettük az érdeklősését!
 
 ---
@@ -27,6 +30,10 @@ Mindenki szereti a nyár melegségét, színeit és a mediterrán vidékek kül�
 A mediterrán kertépítészeti irányzat népszerűsége onnan eredeztethető, hogy évről, évre mind több honfitársunk jár a mediterrán országokba nyaralni, márpedig akit egyszer megérintett a kellemes mediterrán hangulat és életérzés, bizonyosan szeretné azt a későbbiekben is mind többször megtapasztalni, és lehetőleg a mindennapok részévé tenni. Ennek legpraktikusabb módja lehet, ha otthonunk és kertünk tervezésekor is a mediterrán stílusjegyeket követjük.
 
 ![Let us get started on a clean slate](images/mediterran.jpg)
+
+
+![Let us get started on a clean slate](images/mediterran1.jpg)
+
 
 A mediterrán hangulatú kert kialakítása során a növények, a burkolatok, kerti bútorok és más elemek (például kutak, szobrok) helyes kiválasztása egyaránt nélkülözhetetlen.
 
@@ -41,6 +48,10 @@ Bármennyire is szeretnénk kertünkbe ugyanazt a hangulatot és látványt var�
 Ha a modern kertstílus áll Önhöz a legközelebb, de még nem tudja, hogy ez miként lehetne megvalósítani a gyakorlatban, hívjon minket!
 
 ![Let us get started on a clean slate](images/modern.jpg)
+
+![Let us get started on a clean slate](images/modern1.jpg)
+
+![Let us get started on a clean slate](images/modern2.jpg)
 
 A modern, minimalista kertstílus kialakításának alapja a rendkívül kifinomult anyaghasználat, és a növények gondos megválasztása. Ám legalább ilyen fontos tudatosítanunk, hogy modern kert csakis modern stílusú épülethez illik igazán.
 
